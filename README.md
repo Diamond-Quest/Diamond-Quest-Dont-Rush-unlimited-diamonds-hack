@@ -1,0 +1,1 @@
+# Diamond-Quest-Dont-Rush-unlimited-diamonds-hack
